@@ -1,0 +1,2 @@
+# nyobiandeui
+terus berusaha
